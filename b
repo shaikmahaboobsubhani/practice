@@ -1,0 +1,4 @@
+mahi
+sakhsi
+bindiu
+akki
